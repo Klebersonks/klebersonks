@@ -22,7 +22,7 @@ JavaScript
 - VS Code
 
 ## 📫 Contato
-- Instagram: *@kaio.slv01*  
+- Instagram: *www.instagram.com/kaio.slv01*  
 - Gmail: *Klebersonkaiosilva@gmail.com*
 
 ---
